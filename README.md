@@ -1,3 +1,5 @@
+[OTPBOT](https://t.me/BlGFATOTP_bot)
+
 🦢BigFatOTP🦢 v.3
 🌟 By Fraudsters, For Fraudsters 🌟
 ➖➖➖➖➖➖➖
